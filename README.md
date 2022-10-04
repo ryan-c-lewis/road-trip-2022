@@ -24,7 +24,7 @@ Eventually everyone was going up. Hundreds and hundreds, all different types.
 
 Left the festival and drove up to Utah.
 
-<img src="photos/03_welcomeToUtah.jpg" width="600" />
+<img src="photos/02_welcomeToUtah.jpg" width="600" />
 
 I booked a campsite in Canyonlands National Park in Utah. By the time I got to the park, a storm started rolling in. It was looking pretty ominous but I kept going.
 
