@@ -88,3 +88,28 @@ Got to Salt Lake City and checked into a hostel. Decided to go downtown and see 
 Drove to a hill overlooking the city and hiked up it to get a good view. According to a plaque, Brigham Young went up this hill when he was deciding whether to settle on this land.
 
 <img src="photos/03_saltLakeCity_fromHill.jpg" width="600" />
+
+DAY 4 - Salt Lake City, UT to Las Vegas, NV
+------------------------
+
+I slept in late, first good night of sleep I've had so far. Originally I was planning to stay in Salt Lake City another day and then go west, but I decided instead to leave today and go south. I was curious to see Las Vegas, and I really wanted to camp in Joshua Tree.
+
+So I headed southwest toward the corner of Utah, Arizona, and Nevada.
+
+<img src="photos/04_welcomeToArizona.jpg" width="600" />
+
+The drive was gorgeous. The grassy mountains of Utah slowly morphed into rock as I got into Arizona.
+
+<img src="photos/04_road.jpg" width="600" />
+
+But as soon as I hit Nevada, it became flat desert.
+
+<img src="photos/04_welcomeToNevada.jpg" width="600" />
+
+Got into Las Vegas and went to see the strip. It was a lot.
+
+<img src="photos/04_lasVegasStrip.jpg" width="600" />
+
+<img src="photos/04_lasVegasFountain.jpg" width="600" />
+
+I stayed long enough to get the idea, then left for the Airbnb.
