@@ -1,3 +1,5 @@
+<img src="photos/_map.png" width="600" />
+
 DAY 1 - Dallas, TX to Albuquerque, NM
 ------------------------
 
