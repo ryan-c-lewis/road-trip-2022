@@ -108,10 +108,12 @@ But as soon as I hit Nevada, it became flat desert.
 
 <img src="photos/04_welcomeToNevada.jpg" width="600" />
 
-Got into Las Vegas and went to see the strip. It was a lot.
+Got into Las Vegas and went to see the strip. It was a lot. Didn't really do anything there, just looked around and stayed long enough to get the idea.
 
 <img src="photos/04_lasVegasStrip.jpg" width="600" />
 
 <img src="photos/04_lasVegasFountain.jpg" width="600" />
 
-I stayed long enough to get the idea, then left for the Airbnb.
+Ended the night at a dance club in a calmer part of town.
+
+<img src="photos/04_club.jpg" width="600" />
