@@ -117,3 +117,50 @@ Got into Las Vegas and went to see the strip. It was a lot. Didn't really do any
 Ended the night at a dance club in a calmer part of town.
 
 <img src="photos/04_club.jpg" width="600" />
+
+DAY 5 - Las Vegas, NV to Joshua Tree, CA
+------------------------
+
+Headed south toward Joshua Tree. Stopped at a small casino on the way out of town. Went in with $20, came out with $40.65!
+
+<img src="photos/05_casino.jpg" width="600" />
+
+Happened to pass by the Hoover Dam, so stopped there to look.
+
+<img src="photos/05_dam.jpg" width="600" />
+
+Kept driving and passed by a cool mountain right next to the highway. So I decided to see if there was a trail to it, and there was!
+
+<img src="photos/05_squadronPeak.jpg" width="600" />
+
+Decided to climb up it, which was hard because it was mostly loose rocks the whole way up. Accidentally found a geocache also!
+
+<img src="photos/05_geocache.jpg" width="600" />
+
+Got close to the top where some climbing was needed, and couldn't find a way past this boulder. It didn't look very stable, so I decided to admit defeat and head back down.
+
+<img src="photos/05_boulder.jpg" width="600" />
+
+But it was a cool view even without getting to the very top:
+
+<img src="photos/05_squadronPeakTop.jpg" width="600" />
+
+Got dinner at a swanky golf club.
+
+<img src="photos/05_resort.jpg" width="600" />
+
+Kept driving toward Joshua Tree.
+
+<img src="photos/05_camper.jpg" width="600" />
+
+<img src="photos/05_sunset.jpg" width="600" />
+
+<img src="photos/05_train.jpg" width="600" />
+
+Didn't get there until night, so it was hard to get good photos.
+
+<img src="photos/05_joshuaTreeSign.jpg" width="600" />
+
+<img src="photos/05_joshuaTreeBrush.jpg" width="600" />
+
+<img src="photos/05_joshuaTreeRock.jpg" width="600" />
