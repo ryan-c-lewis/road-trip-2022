@@ -164,3 +164,20 @@ Didn't get there until night, so it was hard to get good photos.
 <img src="photos/05_joshuaTreeBrush.jpg" width="600" />
 
 <img src="photos/05_joshuaTreeRock.jpg" width="600" />
+
+DAY 6 - Joshua Tree, CA to Santa Barbara, CA
+------------------------
+
+Slept very poorly, so decided to take the day slow and not do much other than drive.
+
+<img src="photos/06_sunrise.jpg" width="600" />
+
+LA traffic was miserable and the gas station coffee was even worse than usual, but the drive was fine. Got to the beach in the early afternoon.
+
+<img src="photos/06_beach.jpg" width="600" />
+
+<img src="photos/06_harbor.jpg" width="600" />
+
+<img src="photos/06_pointCastillo.jpg" width="600" />
+
+Got dinner and headed to the Airbnb early.
