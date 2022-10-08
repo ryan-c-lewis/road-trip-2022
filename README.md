@@ -181,3 +181,38 @@ LA traffic was miserable and the gas station coffee was even worse than usual, b
 <img src="photos/06_pointCastillo.jpg" width="600" />
 
 Got dinner and headed to the Airbnb early.
+
+DAY 7 - Santa Barbara, CA to Carmel by the Sea, CA
+------------------------
+
+Spent the day driving up Highway 1 (which is on the coast) and stopping at anything that looked interesting.
+
+<img src="photos/07_shore1.jpg" width="600" />
+
+<img src="photos/07_birds.jpg" width="600" />
+
+At one point I passed the Big Sur "Jade Festival" which, weirdly enough, is exactly what it sounds like: a festival dedicated to art and jewelry made out of jade stones.
+
+<img src="photos/07_jadeFestival.jpg" width="600" />
+
+Found a cool outcropping that was fun to climb.
+
+<img src="photos/07_peninsula1.jpg" width="600" />
+
+<img src="photos/07_peninsula2.jpg" width="600" />
+
+<img src="photos/07_peninsula3.jpg" width="600" />
+
+The rocks were all loose, so I had a really hard time getting back up to the road after climbing down to see this bridge. I can see why this area is prone to rockslides.
+
+<img src="photos/07_bridge.jpg" width="600" />
+
+<img src="photos/07_clouds.jpg" width="600" />
+
+<img src="photos/07_shore2.jpg" width="600" />
+
+<img src="photos/07_shore3.jpg" width="600" />
+
+<img src="photos/07_shore4.jpg" width="600" />
+
+Eventually made it to Carmel by the Sea where I stayed for the night.
