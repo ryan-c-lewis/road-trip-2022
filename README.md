@@ -216,3 +216,40 @@ The rocks were all loose, so I had a really hard time getting back up to the roa
 <img src="photos/07_shore4.jpg" width="600" />
 
 Eventually made it to Carmel by the Sea where I stayed for the night.
+
+DAY 8 - Carmel by the Sea, CA to Eureka, CA
+------------------------
+
+Woke up and drove to Palo Alto to have brunch with <a href="https://www.youtube.com/watch?v=5G9gk49VhKM">Karen Wong</a> and her husband George!
+
+<img src="photos/08_wongs.jpg" width="600" />
+
+Drove into San Francisco and wandered around the neighborhoods for a while.
+
+<img src="photos/08_sanFran.jpg" width="600" />
+
+<img src="photos/08_houses.jpg" width="600" />
+
+The streets are crazy here. Total chaos. I was originally planning to stay one more day in this area, but the traffic and crowds were stressing me out so I decided to leave. Wanted to see the Golden Gate first...
+
+<img src="photos/08_goldenGate.jpg" width="600" />
+
+... but the clouds were so low that I really couldn't. Oh well. Hung out for a while at the park right next to the bridge.
+
+<img src="photos/08_park.jpg" width="600" />
+
+The drive north was peaceful after getting out of the city.
+
+<img src="photos/08_roadDay.jpg" width="600" />
+
+Passed a number of vineyards.
+
+<img src="photos/08_vineyard.jpg" width="600" />
+
+<img src="photos/08_vineyard2.jpg" width="600" />
+
+Drove in the dark for a while, could tell that the trees were changing into pines but it was hard to see. Got foggy and spooky for a while.
+
+<img src="photos/08_roadNight.jpg" width="600" />
+
+Ended up at a small town Airbnb for the night.
