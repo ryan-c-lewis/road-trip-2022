@@ -253,3 +253,38 @@ Drove in the dark for a while, could tell that the trees were changing into pine
 <img src="photos/08_roadNight.jpg" width="600" />
 
 Ended up at a small town Airbnb for the night.
+
+DAY 9 - Eureka, CA to Bend, OR
+------------------------
+
+Decided to try to get all the way to Bend, Oregon today, which would be quite a drive. Got started early so I'd have time to stop at stuff along the way.
+
+<img src="photos/09_sunrise.jpg" width="600" />
+
+Like an area that claimed to have wild elk. I didn't find any.
+
+<img src="photos/09_elkMeadow.jpg" width="600" />
+
+Passed through the Redwood National and State Parks and saw the huge trees. This one is supposedly 1500 years old:
+
+<img src="photos/09_bigTree.jpg" width="600" />
+
+Kept going north into Oregon.
+
+<img src="photos/09_welcomeToOregon.jpg" width="600" />
+
+Stopped at a big cats sanctuary:
+
+<img src="photos/09_jaguars.jpg" width="600" />
+
+<img src="photos/09_lions.jpg" width="600" />
+
+<img src="photos/09_tiger.jpg" width="600" />
+
+Then drove the rest of the way to Bend.
+
+<img src="photos/09_mountain.jpg" width="600" />
+
+<img src="photos/09_river.jpg" width="600" />
+
+The hostel doubles as a bar with live music, and apparently Sunday night is disco night. Might have a tough time getting to sleep...
