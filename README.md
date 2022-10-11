@@ -288,3 +288,38 @@ Then drove the rest of the way to Bend.
 <img src="photos/09_river.jpg" width="600" />
 
 The hostel doubles as a bar with live music, and apparently Sunday night is disco night. Might have a tough time getting to sleep...
+
+DAY 10 - Bend, OR to Ashford, WA
+------------------------
+
+Woke up this morning and had absolutely no idea where I wanted to go. Decided I wanted to hike Mount Rainier, so I headed north for Washington.
+
+<img src="photos/10_openArea.jpg" width="600" />
+
+<img src="photos/10_road.jpg" width="600" />
+
+Passed a site called "Pioneer Woman's Grave", a burial site for a woman who died on the Oregon Trail.
+
+<img src="photos/10_grave.jpg" width="600" />
+
+Passed Mount Hood:
+
+<img src="photos/10_mtHood.jpg" width="600" />
+
+Had to stop and climb something, of course:
+
+<img src="photos/10_rocks.jpg" width="600" />
+
+Got off the highway and took an unpaved route through the mountains, which was slower but beautiful.
+
+<img src="photos/10_trees.jpg" width="600" />
+
+<img src="photos/10_sign.jpg" width="600" />
+
+<img src="photos/10_me.jpg" width="600" />
+
+<img src="photos/10_river.jpg" width="600" />
+
+The campsites at the base of Mount Rainier are closed for the season, so I found a nearby inn.
+
+<img src="photos/10_hotel.jpg" width="600" />
