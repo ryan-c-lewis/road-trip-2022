@@ -323,3 +323,40 @@ Got off the highway and took an unpaved route through the mountains, which was s
 The campsites at the base of Mount Rainier are closed for the season, so I found a nearby inn.
 
 <img src="photos/10_hotel.jpg" width="600" />
+
+DAY 11 - Ashford, WA to Seattle, WA
+------------------------
+
+Woke up early and got to the base of Mount Rainier. Was hoping to see sunrise from a good view.
+
+<img src="photos/11_mountRainier.jpg" width="600" />
+
+<img src="photos/11_foliage.jpg" width="600" />
+
+And I did! Pictures don't capture it very well... it was the most beautiful sunrise I've ever seen.
+
+<img src="photos/11_sunrise.jpg" width="600" />
+
+<img src="photos/11_sunrise2.jpg" width="600" />
+
+Started hiking up. I knew I wouldn't be able to get to the very top of the mountain (you have to hire a guide, it's pretty difficult and icy) but I was hoping to get to the base camp they use when summiting.
+
+The first part of the trail wasn't too bad. Just a normal hike. But then the ice fields started...
+
+<img src="photos/11_sign.jpg" width="600" />
+
+I was able to go around some of them, but eventually I had to cross some. It wasn't too bad. Imagine a mogul ski run, but ice:
+
+<img src="photos/11_ice.jpg" width="600" />
+
+They were pretty brutal to cross (especially without shoe spikes and poles) but I made it. Had to grab rocks and sort of dig them into the ice to get traction on steeper parts. Then there was a long stretch of scrambling (hiking up rocks, sometimes having to climb a little bit.) Almost gave up but eventually made it to the camp.
+
+<img src="photos/11_camp.jpg" width="600" />
+
+<img src="photos/11_me.jpg" width="600" />
+
+<img src="photos/11_view.jpg" width="600" />
+
+The hike back was a little easier because I could slide down the ice, almost like skiing. Full hike was 9.4 miles, 7 hours, 4,800 feet of elevation.
+
+Drove to Seattle afterward to stay with a buddy.
