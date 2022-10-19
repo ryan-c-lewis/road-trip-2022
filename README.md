@@ -75,10 +75,6 @@ This route passed by a lake with some people fishing.
 
 <img src="photos/03_lake.jpg" width="600" />
 
-Just for kicks decided to get in the water. It was freezing.
-
-<img src="photos/03_gettingInWater.jpg" width="600" />
-
 Got to Salt Lake City and checked into a hostel. Decided to go downtown and see some Mormon things.
 
 <img src="photos/03_cathedral.jpg" width="600" />
