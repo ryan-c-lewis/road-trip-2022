@@ -360,3 +360,153 @@ They were pretty brutal to cross (especially without shoe spikes and poles) but 
 The hike back was a little easier because I could slide down the ice, almost like skiing. Full hike was 9.4 miles, 7 hours, 4,800 feet of elevation.
 
 Drove to Seattle afterward to stay with a buddy.
+
+DAY 12 - Seattle, WA
+------------------------
+
+My buddy worked today so I just hung out at his apartment until the evening. Nice to have some rest. We went into downtown Seattle for a while and just wandered around.
+
+<img src="photos/12_gumWall.jpg" width="600" />
+
+<img src="photos/12_market.jpg" width="600" />
+
+<img src="photos/12_skyline.jpg" width="600" />
+
+DAY 13 - Seattle, WA to Columbia Falls, MT
+------------------------
+
+Headed for Montana. It was a long drive so I didn't really stop to take many photos.
+
+<img src="photos/13_road1.jpg" width="600" />
+
+<img src="photos/13_road2.jpg" width="600" />
+
+<img src="photos/13_road3.jpg" width="600" />
+
+A friend happened to be visiting the same area today for an event, so I showed up for a while. It was a church hosting a Beast Feast. Can't really tell from the picture, but it was a huge turnout:
+
+<img src="photos/13_beastFeast.jpg" width="600" />
+
+Stayed at a quirky "treehouse" Airbnb: 
+
+<img src="photos/13_treeHouse.jpg" width="600" />
+
+DAY 14 - Columbia Falls, MT to Lava Hot Springs, ID
+------------------------
+
+Originally I was planning to keep going east into North Dakota or South into Wyoming, but my mind was really stuck on the Grand Canyon, which I had bypassed on day 5. I decided to head south just to see the Grand Canyon.
+
+So for today, that meant driving halfway and stopping somewhere in Idaho.
+
+<img src="photos/14_field.jpg" width="600" />
+<img src="photos/14_road1.jpg" width="600" />
+<img src="photos/14_road2.jpg" width="600" />
+<img src="photos/14_road3.jpg" width="600" />
+
+I wanted to go to a hot springs, so I went to a little town called Lava Hot Springs. Hung out there for a while and talked with some locals about their lives. It was a good time.
+
+DAY 15 - Lava Hot Springs, ID to Grand Canyon, AZ
+------------------------
+
+Drove the rest of the way to the Grand Canyon. Didn't stop at all to take photos.
+
+I was hoping to take a hike into the canyon, or even go camping down there. But people normally have to make reservations months in advance (and win a "lottery" because demand is higher than availability) in order to get a campsite. They do set aside a few spots for spur-of-the-moment people like me, but it's first-come-first-serve so you have to get lucky. I figured I'd give it a shot.
+
+Turns out, I was able to get 2 consecutive nights at 2 different campsites, which meant I would be able to do a "rim to rim" hike 24 miles all the way across the canyon. The only catch is, I'd have to leave my car at the north side and finish at the south side, and somehow get back to my car (a 5 hour drive, because you have to drive all the way around the canyon.) But I was able to reserve a spot on a shuttle bus.
+
+So I drove an hour to the nearest town and got some supplies and stayed at a motel.
+
+DAY 16 - Grand Canyon, AZ
+------------------------
+
+Started midday, only needed to go 7 miles downhill. Expected it to be a pretty easy day, and it was.
+
+<img src="photos/16_trailStart.jpg" width="600" />
+
+<img src="photos/16_me2.jpg" width="600" />
+
+<img src="photos/16_me1.jpg" width="600" />
+
+Hiked the first couple hours with a guy named Will who was just doing a day hike partway down.
+
+<img src="photos/16_will.jpg" width="600" />
+
+There was more vegetation than I expected. Lots of plants and trees, and a river running along the whole trail.
+
+<img src="photos/16_trail1.jpg" width="600" />
+
+<img src="photos/16_trail3.jpg" width="600" />
+
+The pictures don't do it justice, but the walls looked so incredibly high from down there.
+
+<img src="photos/16_trail2.jpg" width="600" />
+
+<img src="photos/16_trail4.jpg" width="600" />
+
+Groups of tourists sometimes passed on mules. These people all looked scared... from what I heard, it's pretty nerve-racking to ride these mules because you feel like you could get thrown off the cliff at any moment. Some parts of the trail are right on the edge of a long, long drop.
+
+<img src="photos/16_trail5.jpg" width="600" />
+
+Got to the first campsite. There was a building there with some equipment for park rangers. There was even a helipad on the roof so that helicopters could land safely. I guess they bring supplies on helicopters and also pick people up in emergencies (like if a hiker gets heat stroke and can't move anymore.)
+
+<img src="photos/16_trail6.jpg" width="600" />
+
+Rained a bit at night, but wasn't a big deal. I didn't have a tarp but was able to tie some trash bags together and that was good enough.
+
+<img src="photos/16_night.jpg" width="600" />
+
+DAY 17 - Grand Canyon, AZ
+------------------------
+
+Slept surprisingly well, ready for the 12 miles today. Took a short detour to a neat little waterfall:
+
+<img src="photos/17_ribbonFalls.jpg" width="600" />
+
+The further I went, the fewer trees there were. It was starting to look more like what I expected the Grand Canyon to look like.
+
+<img src="photos/17_trail1.jpg" width="600" />
+
+<img src="photos/17_trail2.jpg" width="600" />
+
+<img src="photos/17_trail3.jpg" width="600" />
+
+Passed through a little village at the very bottom of the canyon, sort of like a hotel. Apparently only a small percentage of people win the reservation lottery and are able to stay here. It even had a shop where you could buy food and supplies (and pay with credit card somehow lol; I guess they had sattelite internet.) Lots of hikers were taking a break here.
+
+<img src="photos/17_trail4.jpg" width="600" />
+
+<img src="photos/17_trail5.jpg" width="600" />
+
+Until this point it was all downhill. This was the very bottom, the muddy and raging Colorado River. The rest of the hike would be uphill. First you had to cross a long, rickety bridge:
+
+<img src="photos/17_trail6.jpg" width="600" />
+
+The uphill wasn't too steep (yet) but it was definitely harder.
+
+<img src="photos/17_trail7.jpg" width="600" />
+
+<img src="photos/17_trail8.jpg" width="600" />
+
+Made it to the campsite around 3 PM, pretty tired. But only 5 miles left to go tomorrow.
+
+DAY 18 - Grand Canyon, AZ
+------------------------
+
+Didn't sleep well, was wide awake at 3 AM, so I decided to pack up and try to get to the top to see the sunrise.
+
+This last 5 miles was pretty steep, but it wasn't as bad as I was expecting. Thought it was going to be absolutely brutal, but it wasn't. Got to the top at exactly 6 AM, just in time for the sunrise:
+
+<img src="photos/18_sunrise.jpg" width="600" />
+
+My shuttle bus wasn't coming until 1 PM, so I had some time. This top area is designed for people to come see the views even if they don't want to hike. There were shops and overlooks you could walk to:
+
+<img src="photos/18_overlook1.jpg" width="600" />
+
+<img src="photos/18_overlook2.jpg" width="600" />
+
+Met a guy named Vince who was headed out to do the whole 24 miles in 1 day without stopping to camp. Since he was leaving, he gave me his hotel room key so I could shower (which was awesome, because... I needed it.) Had to wait around for a few more hours and met a couple guys (<a href="https://gracepointchurch.net/mikemcdaniel">Mike</a> and Paul) who turned out to be riding the same 5-hour shuttle bus as me. Had a good time on the shuttle with them and the other people riding with us.
+
+Made a couple scheduled stops along the way, including one at the historic Cameron Suspension Bridge:
+
+<img src="photos/18_bridge.jpg" width="600" />
+
+Made it back to the car and went back to the same motel from a few days ago.
