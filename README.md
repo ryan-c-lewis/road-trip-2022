@@ -1,6 +1,6 @@
 <img src="photos/_map.png" width="600" />
 
-DAY 1 - Dallas, TX to Albuquerque, NM
+DAY 1 - Arlington, TX to Albuquerque, NM
 ------------------------
 
 Headed out around 7 AM. Drive was uneventful, didn't think to take pictures. Got to Albuquerque in the afternoon and checked into a hostel.
@@ -466,7 +466,7 @@ The further I went, the fewer trees there were. It was starting to look more lik
 
 <img src="photos/17_trail3.jpg" width="600" />
 
-Passed through a little village at the very bottom of the canyon, sort of like a hotel. Apparently only a small percentage of people win the reservation lottery and are able to stay here. It even had a shop where you could buy food and supplies (and pay with credit card somehow lol; I guess they had sattelite internet.) Lots of hikers were taking a break here.
+Passed through a little village at the very bottom of the canyon, sort of like a hotel. Apparently only a small percentage of people win the reservation lottery and are able to stay here. It even had a shop where you could buy food and supplies (and pay with credit card somehow lol; I guess they had satellite internet.) Lots of hikers were taking a break here.
 
 <img src="photos/17_trail4.jpg" width="600" />
 
@@ -506,3 +506,14 @@ Made a couple scheduled stops along the way, including one at the historic Camer
 <img src="photos/18_bridge.jpg" width="600" />
 
 Made it back to the car and went back to the same motel from a few days ago.
+
+DAY 19 - Grand Canyon, AZ to Albuquerque, NM
+------------------------
+
+Nothing but driving today. Most of it was through the Hopi Reservation and the Navajo Nation.
+
+<img src="photos/19_road1.jpg" width="600" />
+
+<img src="photos/19_road2.jpg" width="600" />
+
+Got to Albuquerque, stayed in an Airbnb downtown instead of the hostel from day 1.
