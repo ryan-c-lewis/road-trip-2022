@@ -1,3 +1,5 @@
+20 days, 6000+ miles
+
 <img src="photos/_map.png" width="600" />
 
 DAY 1 - Arlington, TX to Albuquerque, NM
