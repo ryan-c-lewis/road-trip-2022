@@ -69,7 +69,7 @@ Headed toward Salt Lake City. The drive was beautiful. The desert slowly turned 
 
 <img src="photos/03_road.jpg" width="600" />
 
-Instead of satying on the interstate, I decided to take a longer scenic route through a national park.
+Instead of staying on the interstate, I decided to take a longer scenic route through a national park.
 
 <img src="photos/03_scenicOverlook.jpg" width="600" />
 
