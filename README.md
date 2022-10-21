@@ -519,3 +519,8 @@ Nothing but driving today. Most of it was through the Hopi Reservation and the N
 <img src="photos/19_road2.jpg" width="600" />
 
 Got to Albuquerque, stayed in an Airbnb downtown instead of the hostel from day 1.
+
+DAY 20 - Albuquerque, NM to Arlington, TX
+------------------------
+
+Final day, nothing but driving. Ironically today was the only day I hit any issues with traffic. Something was blocking all lanes a few hours outside DFW, so I had to wander down some dirt roads to get around it. Made it back just in time for rush hour traffic. But it was nice to be home.
