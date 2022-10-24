@@ -1,4 +1,4 @@
-20 days, 6000 miles
+20 days, 7000 miles
 
 <img src="photos/_map.png" width="600" />
 
