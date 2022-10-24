@@ -53,11 +53,11 @@ I climbed the first half pretty easily.
 
 <img src="photos/03_overlookingCampsite.jpg" width="600" />
 
-But to get to the top was going to be harder. There was no obvious way up that didn't involve risky climbs. Eventually I picked a route and went. At one point I went out onto a ledge above a steep drop (a fall would have been... very bad.) At first I wasn't worried, but then the ledge stopped and I had no choice but to go straight up onto a smooth section with no good grips. I tried to go backwards the way I came, but I felt like I was losing my balance and about to fall. So I had no choice but to go for it. One of the scariest moments of my life.
+But to get to the top was going to be harder. There was no obvious way up that didn't involve risky climbs. Picked a route and went.
 
 <img src="photos/03_exposedClimb.jpg" width="600" />
 
-But I made it and got to the top. I was able to find a safer route down the other side.
+Eventually got to the top. I was able to find a safer route down the other side.
 
 <img src="photos/03_sunrise.jpg" width="600" />
 
